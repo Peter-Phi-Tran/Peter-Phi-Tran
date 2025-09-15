@@ -9,8 +9,6 @@
   
   💬 Always Learning<br>
   
-  🎲 Do it for the love of the game<br>
-  
   🥾 Might be outside<br>
 
 <br>
