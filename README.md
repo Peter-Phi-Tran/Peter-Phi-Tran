@@ -5,7 +5,7 @@
 
 ### Shmooovin
   - Enthusiast in side questing and life maxxing.
-  - Check out what I've done and my [website](https://peter-phi-tran.github.io/website/).
+  - Check out what I've done and my [website](https://peterphitran.github.io/).
   - "The expert in anything was once a beginner".
 
 ###  Some Tech I Use
